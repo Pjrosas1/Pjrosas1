@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pjrosas1
-- 👀 I’m interested in music , computers and familu.
+- 👀 I’m interested in music , computers and family.
 - 🌱 I’m currently learning Information Technology and Cyber Security admin in college 
 - 💞️ I’m looking to collaborate on coding and app development
 - 📫 How to reach me on here or by email. 
